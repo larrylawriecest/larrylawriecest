@@ -2,28 +2,28 @@
 <div align="center">
 <img width="457" alt="image" src="https://github.com/user-attachments/assets/9671b307-0ca0-455b-ae3f-98e660805386" />
 
-$$\color{#ff5900}{\text{⁙ c + h + k  freely ‘ﾟ W2I ‘ﾟ INT ‘ﾟ Don't copy my skins!}}$$ <img width="32" align="absmiddle" alt="pin" src="https://github.com/user-attachments/assets/a862fd6a-3ee0-4dcb-9aae-035a846c608b" />
+$$\color{#ff7b00}{\text{⁙ c + h + k  freely ‘ﾟ W2I ‘ﾟ INT ‘ﾟ Don't copy my skins!}}$$
 
-$\color{#ff5900}\text{╯‸ › So . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&nbsp;
+$\color{#ff7b00}\text{╯‸ › So . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&nbsp;
 
 
 <details>
-<summary>$\color{#ff5900}\text{DNI}$</summary>
+<summary>$\color{#ff7b00}\text{DNI}$</summary>
   
 $\color{#5cecff}\rule{2pt}{1.1em}\hspace{0.5em}\text{My only DNI are: Nazis, MAGA/Trump supporters, fascists and antishippers}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
 
 </details>
 
 <details>
-<summary>$\color{#FFA500}\text{BYI}$</summary>
+<summary>$\color{#ff7b00}\text{BYI}$</summary>
 
 <div align="left">
 
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im a kind n friendly person}$ $\color{#E0B84F}\text{w a high level of empathy;}$ $\color{#E0B84F}\text{please dont be afraid of me,}$ $\color{#E0B84F}\text{n always let me know}$ $\color{#E0B84F}\text{if anything bothers u}$ $\color{#E0B84F}\text{while interactin' w me}$ <img width="32" align="absmiddle" alt="pin" src="https://static.wikia.nocookie.net/brawlstars/images/3/32/%D0%91%D0%BE%D0%BB%D1%82_Pin-ThanksAnim.gif/revision/latest?cb=20260423112302&amp;path-prefix=ru" />
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im a kind n friendly person}$ $\color{#E0B84F}\text{w a high level of empathy;}$ $\color{#E0B84F}\text{please dont be afraid of me,}$ $\color{#E0B84F}\text{n always let me know}$ $\color{#E0B84F}\text{if anything bothers u}$ $\color{#E0B84F}\text{while interactin' w me}$
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. its pointless to try}$ $\color{#E0B84F}\text{n provoke me into a}$ $\color{#E0B84F}\text{conflict or a reaction,}$ $\color{#E0B84F}\text{i see no reason to}$ $\color{#E0B84F}\text{waste my time on a}$ $\color{#E0B84F}\text{dialogue dat leads nowhere,}$ $\color{#E0B84F}\text{i will either ignore,}$ $\color{#E0B84F}\text{or block/hide u}$
 
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not a confrontational person,}$ $\color{#E0B84F}\text{but it doesnt mean}$ $\color{#E0B84F}\text{i wont stand up for myself}$ $\color{#E0B84F}\text{or engage in a conflict}$ $\color{#E0B84F}\text{if i have to}$ <img width="32" align="absmiddle" alt="pin" src="https://github.com/user-attachments/assets/8141e8b8-f3ad-48fc-b126-508bbc99900b" />
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not a confrontational person,}$ $\color{#E0B84F}\text{but it doesnt mean}$ $\color{#E0B84F}\text{i wont stand up for myself}$ $\color{#E0B84F}\text{or engage in a conflict}$ $\color{#E0B84F}\text{if i have to}$
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. dis applies to the}$ $\color{#E0B84F}\text{ru fandom; i take}$ $\color{#E0B84F}\text{almost all jokes as}$ $\color{#E0B84F}\text{mockery/a jibe directed at me,}$ $\color{#E0B84F}\text{i rlly dont trust}$ $\color{#E0B84F}\text{the ru fandom n}$ $\color{#E0B84F}\text{approach it w huge caution,}$ $\color{#E0B84F}\text{please keep dis in mind}$
 
@@ -43,7 +43,7 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not strict,}$ $\color
 
 </details>
 
-$\color{#FFA500}\text{☼ ‸ › thanks for readin' !}$ <img width="32" align="absmiddle" alt="pin" src="https://github.com/user-attachments/assets/1f58147e-a3ac-47d4-bca3-320cea317fb9" />
+$\color{#FFA500}\text{☼ ‸ › thanks for readin' !}$
 
 </div>
 
