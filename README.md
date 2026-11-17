@@ -4,7 +4,7 @@
 
 $$\color{#ff7b00}{\text{⁙ c + h + k  freely ‘ﾟ W2I ‘ﾟ INT ‘ﾟ Don't copy my skins!}}$$
 
-$\color{#ff7b00}\text{╯‸ › So . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&nbsp;
+$\color{#ffef1d}\text{╯‸ › So . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&nbsp;
 
 
 <details>
@@ -43,7 +43,7 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not strict,}$ $\color
 
 </details>
 
-$\color{#FFA500}\text{☼ ‸ › thanks for readin' !}$
+$\color{#ffef1d}\text{☼ ‸ › thanks for readin' !}$
 
 </div>
 
