@@ -10,7 +10,7 @@ $\color{#ffef1d}\text{╯‸ › So . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&
 <details>
 <summary>$\color{#ff7b00}\text{DNI}$</summary>
   
-$\color{#5cecff}\rule{2pt}{1.1em}\hspace{0.5em}\text{My only DNI are: Nazis, MAGA/Trump supporters, fascists and antishippers}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
+$\color{#5cecff}\text{My only DNI are: Nazis, MAGA/Trump supporters, fascists and antishippers}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
 
 </details>
 
